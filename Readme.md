@@ -251,8 +251,8 @@
     - Attending The Tourwala's 15-year event was like stepping back into my unforgettable group tour memories 🌍. A day full of fun, laughter, and everything that made the trip so special 💖.
     ---
 
-47. "What a fantastic time I had on my group tour with The Tourwala 🌟. The 15-year event brought everyone together in a way that made me feel like I was back on that incredible journey 🌍."
-
+    - What a fantastic time I had on my group tour with The Tourwala 🌟. The 15-year event brought everyone together in a way that made me feel like I was back on that incredible journey 🌍.
+    ---
     - The 15-year event was the perfect way to reconnect with the people I met on my group tour 💫. It was a day filled with laughter, good vibes, and unforgettable memories 🥳.
     ---
 
