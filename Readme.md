@@ -105,7 +105,7 @@
     ---
     - Tourwala nailed it! 👏 The perfect combination of luxury, adventure, and amazing food. 🍽️ From sunrise to sunset, every moment was pure joy. 🌅
     ---
-    - Feeling so grateful for my Tourwala experience! 🙌 The food, the luxury, the exciting activities—everything was beyond my expectations. 😍
+    - Tourwala nailed it! 👏 The perfect combination of luxury, adventure, and amazing food. 🍽️ From sunrise to sunset, every moment was pure joy. 🌅
     ---
     - From start to finish, Tourwala made this trip *so* special. ✨ Every meal was a delight 🍴, the accommodations were luxurious 🏨, and the activities were incredible! 💖
     ---
@@ -212,7 +212,7 @@
     - The Tourwala's group tour changed my life, and the 15-year anniversary event was the perfect way to honor that journey 🌍. It was a beautiful day filled with joy, laughter, and memories 💖.
     ---
 
-    - It was so wonderful to relive all the memories from my group tour at the 15-year anniversary event 🎉. It felt like a reunion full of laughter, joy, and excitement 🤗.
+    - 🤗It was so wonderful to relive all the memories from my group tour at the 15-year anniversary event 🎉. It felt like a reunion full of laughter, joy, and excitement .
     ---
 
     - I’ll never forget the magic of my trip with The Tourwala 🌟. Their 15-year event was the perfect way to reunite with everyone and celebrate all the wonderful moments we shared 💖.
